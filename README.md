@@ -1,0 +1,1 @@
+# netnot adalah netnot. hehe.
